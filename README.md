@@ -38,4 +38,4 @@ To keep on powering through and to remember that I'll laugh in a couple months o
 - Creative problem solving
 - Knowledge sharing
 
-![dwight] (https://media.giphy.com/media/6R2mLi910HL4VXFwOG/giphy.gif?cid=ecf05e47ybgmv8hubcncbhpjq1sbwx5r9jfb9wi77iu0jsty&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+![dwight](https://media.giphy.com/media/6R2mLi910HL4VXFwOG/giphy.gif?cid=ecf05e47ybgmv8hubcncbhpjq1sbwx5r9jfb9wi77iu0jsty&ep=v1_gifs_search&rid=giphy.gif&ct=g)
