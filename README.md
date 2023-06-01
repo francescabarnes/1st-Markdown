@@ -6,7 +6,7 @@
 
 ---
 
-_ Originally from London, somehow found my home in Brussels, discovering the world one country at a time and getting _
+_Originally from London, somehow found my home in Brussels, discovering the world and all the joys it has to offer_
 
 ### My wierd and wonderful skills
 
